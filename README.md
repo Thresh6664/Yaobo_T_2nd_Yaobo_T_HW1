@@ -1,1 +1,1 @@
-# My One Person Team
+# My team of mine
